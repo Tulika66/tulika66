@@ -6,7 +6,7 @@
 
 <div align="center">
 
-📫 How to reach me: [LinkedIn](https://linkedin.com/tulika2612)  
+📫 How to reach me: [LinkedIn](https://linkedin.com/tulika-manek)  
 ⚡ Fun fact: I love travelling :)
 
 </div>
